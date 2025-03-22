@@ -11,3 +11,5 @@ Perfect for quick fun or settling friendly disputes. Roll the dice and let the c
 
 Feel free to tweak it further to match your style! 🚀
 
+![image](https://github.com/user-attachments/assets/a791faa6-518e-4ef4-9562-2397fda61278)
+
